@@ -1,4 +1,4 @@
 # Accueil
 
 ## Notes
-- [Saint Ouen](document.md)
+- [Saint Ouen](notes/document.md)
