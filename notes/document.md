@@ -1,4 +1,4 @@
-## Hypothèses vérifiées
+# Puces Saint Ouen
 
 - Le **7 juin 2026 est un dimanche** ; les marchés principaux des Puces sont annoncés ouverts le dimanche, généralement **10h–18h**. [\[pucesdepar...ntouen.com\]]([https://www.pucesdeparissaintouen.com/les-puces/](https://www.pucesdeparissaintouen.com/les-puces/)), [\[bonjour-ratp.fr\]]([https://www.bonjour-ratp.fr/lieux/puces-de-saint-ouen/](https://www.bonjour-ratp.fr/lieux/puces-de-saint-ouen/))
 - Les horaires spécifiques vérifiés : **Vernaison : samedi, dimanche & lundi 10h–18h** ; **Dauphine : dimanche 10h–18h** ; **Paul Bert Serpette : dimanche 10h–18h**. [\[pucesdepar...ntouen.com\]]([https://www.pucesdeparissaintouen.com/marche-vernaison/](https://www.pucesdeparissaintouen.com/marche-vernaison/)), [\[marche-dauphine.com\]]([https://marche-dauphine.com/infos-pratiques/](https://marche-dauphine.com/infos-pratiques/)), [\[paulbert-s...rpette.com\]]([https://www.paulbert-serpette.com/informations-pratiques](https://www.paulbert-serpette.com/informations-pratiques))
