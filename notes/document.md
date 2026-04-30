@@ -95,27 +95,6 @@ Sortez par **rue des Rosiers** ou revenez vers **rue Paul Bert** selon votre tra
 
 ***
 
-# Pauses café pertinentes
-
-## Avant la visite : **Le Paul Bert**
-
-Le Café Paul Bert est situé **20 rue Paul Bert**, ouvert depuis 1958, avec horaires indiqués du jeudi au lundi, et ouverture matinale ; il est directement dans la zone Paul Bert.
-**Usage recommandé :** café rapide à 09h20–09h45, puis départ immédiat vers Paul Bert Serpette. [\[paulbert-s...rpette.com\]]([https://www.paulbert-serpette.com/le-cafe-paul-bert](https://www.paulbert-serpette.com/le-cafe-paul-bert)), [\[lepaulbert.fr\]]([https://www.lepaulbert.fr/](https://www.lepaulbert.fr/))
-
-## Pendant ou fin de visite : **Les Gastropodes**
-
-Les Gastropodes sont situés dans le **Marché Dauphine**, 138 rue des Rosiers ; l’établissement est cité comme bistrot / restaurant dans Dauphine.
-**Limite :** l’ouverture du dimanche est plutôt indiquée à partir de 11h ou midi selon les sources ; pas fiable pour un café avant 10h. [\[marche-dauphine.com\]]([https://marche-dauphine.com/infos-pratiques/](https://marche-dauphine.com/infos-pratiques/)), [\[pucesdepar...ntouen.com\]]([https://www.pucesdeparissaintouen.com/les-services/cafes-restaurants/les-gastropodes/](https://www.pucesdeparissaintouen.com/les-services/cafes-restaurants/les-gastropodes/)) [\[bing.com\]]([https://bing.com/search?q=Les+Gastropodes+March%c3%a9+Dauphine+horaires+caf%c3%a9+Saint-Ouen](https://bing.com/search?q=Les+Gastropodes+March%c3%a9+Dauphine+horaires+caf%c3%a9+Saint-Ouen)), [\[pop-plaine...ommune.com\]]([https://www.pop-plainecommune.com/offres/restaurant-les-gastropodes-saint-ouen-fr-4838437/](https://www.pop-plainecommune.com/offres/restaurant-les-gastropodes-saint-ouen-fr-4838437/))
-
-## Ambiance puces / jazz : **La Chope des Puces**
-
-La Chope des Puces est au **122 rue des Rosiers**, ouverte le dimanche selon les sources locales, et connue pour son lien avec le jazz manouche.
-**Usage recommandé :** plutôt après 12h30 ou pour prolonger la visite, pas pour optimiser les 3 heures. [\[tourisme93.com\]]([https://www.tourisme93.com/document.php?pagendx=170&engine_zoom=RESIDFC930001761](https://www.tourisme93.com/document.php?pagendx=170&engine_zoom=RESIDFC930001761)), [\[pucesdepar...ntouen.com\]]([https://www.pucesdeparissaintouen.com/les-services/cafes-restaurants/la-chope-des-puces/](https://www.pucesdeparissaintouen.com/les-services/cafes-restaurants/la-chope-des-puces/))
-
-**À éviter comme recommandation principale : Ma Cocotte.** Le site officiel des Puces indique “fermé temporairement”, même si d’autres sources affichent des informations contradictoires. [\[pucesdepar...ntouen.com\]]([https://www.pucesdeparissaintouen.com/les-services/cafes-restaurants/ma-cocotte/](https://www.pucesdeparissaintouen.com/les-services/cafes-restaurants/ma-cocotte/)), [\[parisjetaime.com\]]([https://parisjetaime.com/restaurant/ma-cocotte-p3402](https://parisjetaime.com/restaurant/ma-cocotte-p3402))
-
-***
-
 # Stratégies pour limiter la foule
 
 1.  **Arriver avant 10h, mais ne pas prévoir d’acheter avant 10h.** Les horaires officiels du dimanche commencent à 10h pour les principaux marchés ; arriver plus tôt sert surtout à se positionner. [\[paulbert-s...rpette.com\]]([https://www.paulbert-serpette.com/informations-pratiques](https://www.paulbert-serpette.com/informations-pratiques)), [\[marche-dauphine.com\]]([https://marche-dauphine.com/infos-pratiques/](https://marche-dauphine.com/infos-pratiques/)), [\[pucesdepar...ntouen.com\]]([https://www.pucesdeparissaintouen.com/marche-vernaison/](https://www.pucesdeparissaintouen.com/marche-vernaison/))
