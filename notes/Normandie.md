@@ -1,136 +1,149 @@
-# Circuit révisé — mardi 12 mai
+# Circuit du mardi 12 mai — départ 10h00 de Rubercy
 
-## 10h00 — Départ de Rubercy
-
----
-
-# 10h25 – 11h00
-
-## Longues-sur-Mer Battery
-
-### Pourquoi commencer ici est intelligent
-
-Vous voyez immédiatement :
-
-* ce que les Alliés avaient face à eux ;
-* l’épaisseur des fortifications ;
-* les champs de tir vers la Manche.
-
-Cela donne ensuite du sens à Arromanches et Omaha.
-
-### À observer
-
-* les casemates encore équipées ;
-* le poste de direction de tir en bord de falaise ;
-* la vue sur les secteurs alliés.
-
-### Ce qu’on comprend sur place
-
-La batterie pouvait tirer :
-
-* vers Omaha ;
-* mais aussi vers Gold Beach et Arromanches.
-
-Elle a été bombardée :
-
-* par la marine alliée ;
-* puis neutralisée après le débarquement.
-
-### Temps idéal
-
-30–40 min.
-
-Inutile d’y passer plus d’une heure.
+# 10h00 — Départ de Rubercy
 
 ---
 
-# 11h10 – 11h45
+# 10h35 – 11h15
 
 ## Arromanches-les-Bains
 
-### Arrêt court
+### Objectif
 
-Objectif :
+Comprendre la logistique du débarquement.
 
-* voir le port Mulberry ;
-* comprendre la logistique alliée.
+### À voir
 
-### À faire
+* les restes du port artificiel Mulberry au large ;
+* la promenade front de mer ;
+* éventuellement le point de vue en hauteur.
 
-* promenade front de mer ;
-* observer les structures au large.
+### Ce qu’il faut comprendre
 
-Pas de musée demain : vous gagneriez peu par rapport au temps perdu.
+Après le débarquement, les Alliés devaient débarquer :
+
+* carburant ;
+* chars ;
+* munitions ;
+* nourriture ;
+* renforts.
+
+Les ports artificiels étaient essentiels.
+
+### Temps conseillé
+
+30–40 min maximum.
+
+Le musée n’est pas indispensable dans votre journée.
 
 ---
 
-# 12h10 – 13h30
+# 11h25 – 12h00
+
+## Longues-sur-Mer Battery
+
+### Pourquoi ce site est intéressant
+
+Contrairement à beaucoup de batteries du Mur de l’Atlantique :
+
+* plusieurs casemates sont intactes ;
+* des canons sont encore présents.
+
+### À observer
+
+* l’épaisseur du béton ;
+* les champs de tir vers la mer ;
+* le poste d’observation sur la falaise.
+
+### Ce qu’on comprend ici
+
+Les plages alliées restaient sous menace d’artillerie lourde même après le débarquement initial.
+
+### Temps conseillé
+
+30 min environ.
+
+---
+
+# 12h25 – 13h40
 
 ## Normandy American Cemetery
 
-### Temps long
+### Temps long conseillé
 
-Le cœur mémoriel de la journée.
+C’est le cœur mémoriel de la journée.
 
-### Conseil
+### À faire
 
-Faire peu de photos ici.
-Le lieu fonctionne surtout par observation lente.
+* visitor center rapide ;
+* allée centrale ;
+* jardin des disparus ;
+* vue sur Omaha Beach.
+
+### Important
+
+Le lieu fonctionne mieux lentement et sans se précipiter.
 
 ---
 
-# 13h35 – 14h20
+# 13h45 – 14h30
 
 ## Omaha Beach
 
-### Déjeuner simple possible sur place
+### Pause déjeuner simple possible ici
 
-### À regarder
+### À observer
 
-* relief ;
-* sorties de plage ;
-* exposition totale du terrain.
+* largeur de la plage ;
+* pente ;
+* falaises ;
+* absence de couvert.
 
-Après Colleville, la plage devient beaucoup plus parlante.
+Après le cimetière, le terrain prend une autre dimension.
 
 ---
 
-# 14h45 – 16h00
+# 14h55 – 16h05
 
 ## Pointe du Hoc
 
-### Site le plus spectaculaire visuellement
+### Site majeur
+
+Probablement le plus impressionnant visuellement.
 
 ### À ne pas manquer
 
 * les cratères ;
 * les bunkers ;
-* le bord des falaises.
+* les falaises.
 
-Le terrain reste aujourd’hui encore profondément marqué.
+### Important
+
+Certaines zones peuvent être sécurisées ou fermées selon les travaux liés à l’érosion.
 
 ---
 
-# 16h15 – 17h00
+# 16h20 – 17h00
 
 ## La Cambe German War Cemetery
 
-### Dernière étape très cohérente
+### Dernière étape idéale
 
 Le contraste avec Colleville est fort :
 
-* esthétique ;
-* mémoire ;
-* densité des tombes.
+* tombes sombres ;
+* ambiance plus austère ;
+* mémoire différente de la guerre.
 
-Très bon site pour terminer la journée.
+### Temps conseillé
+
+40 min.
 
 ---
 
 # 17h20 – 17h50
 
-## Retour Rubercy
-
+## Retour à Rubercy
 
 ---
 
