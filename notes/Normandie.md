@@ -1,3 +1,164 @@
+# Circuit du 12 mai — départ Rubercy 10h00
+
+## 10h00 — Départ de Rubercy
+
+---
+
+# 10h30 – 11h50
+
+## Omaha Beach
+
+### Objectif
+
+Comprendre physiquement le débarquement américain.
+
+### À faire
+
+* marcher sur la plage ;
+* observer les hauteurs dominant la plage ;
+* voir le monument *Les Braves* ;
+* lire les sorties de plage.
+
+### Important
+
+Le relief explique presque tout :
+
+* plage exposée ;
+* peu de couvert ;
+* positions allemandes dominantes.
+
+Prenez le temps de marcher réellement sur le sable.
+
+---
+
+# 12h00 – 13h35
+
+## Normandy American Cemetery
+
+### Temps conseillé
+
+1h30 environ.
+
+### À voir
+
+* le visitor center (court passage) ;
+* les alignements de tombes ;
+* le jardin des disparus ;
+* le belvédère sur Omaha Beach.
+
+### Pourquoi ce lieu est majeur
+
+Le contraste entre :
+
+* la beauté du site ;
+* et la violence des pertes humaines
+
+fonctionne très fortement.
+
+Le lieu contient plus de 9 000 tombes américaines.
+
+---
+
+# 13h35 – 14h15
+
+## Pause déjeuner légère
+
+Évitez un restaurant long.
+
+Le plus efficace :
+
+* boulangerie ;
+* sandwich ;
+* manger ensuite face à la mer à Arromanches.
+
+---
+
+# 14h15 – 14h50
+
+## Arromanches-les-Bains
+
+### Objectif
+
+Arrêt court uniquement.
+
+Pas besoin de musée demain.
+
+### Ce qu’il faut voir
+
+Depuis la promenade :
+
+* les restes du port artificiel Mulberry visibles au large.
+
+### Pourquoi c’est important
+
+Omaha explique le débarquement.
+Arromanches explique comment les Alliés ont ensuite alimenté l’invasion :
+
+* véhicules ;
+* carburant ;
+* munitions ;
+* hommes.
+
+Sans ces ports artificiels, l’opération aurait été beaucoup plus fragile.
+
+### Temps suffisant
+
+30 à 40 minutes.
+
+---
+
+# 15h15 – 16h25
+
+## Pointe du Hoc
+
+### À observer
+
+* les cratères ;
+* les bunkers ;
+* les falaises.
+
+C’est probablement le site où les traces du combat restent les plus visibles.
+
+### Important
+
+Certaines zones peuvent être fermées selon l’érosion et les travaux de sécurisation des falaises.
+
+---
+
+# 16h45 – 17h25
+
+## La Cambe German War Cemetery
+
+### Ambiance
+
+Très différente du cimetière américain :
+
+* plus sombre ;
+* plus austère ;
+* plus dense.
+
+### À remarquer
+
+Beaucoup de soldats allemands enterrés ici étaient très jeunes.
+
+Le contraste avec Colleville fonctionne particulièrement bien en fin de journée.
+
+---
+
+# 17h25 – 17h55
+
+## Retour vers Rubercy
+
+---
+
+# Temps total réaliste
+
+* conduite : ~2h
+* visites : ~6h
+* pauses : ~1h
+
+---
+
 # Itinéraire final - Normandie
 
 **Dimanche 10 → Samedi 16 mai 2026**
