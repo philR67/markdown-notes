@@ -1,161 +1,136 @@
-# Circuit du 12 mai — départ Rubercy 10h00
+# Circuit révisé — mardi 12 mai
 
 ## 10h00 — Départ de Rubercy
 
 ---
 
-# 10h30 – 11h50
+# 10h25 – 11h00
 
-## Omaha Beach
+## Longues-sur-Mer Battery
 
-### Objectif
+### Pourquoi commencer ici est intelligent
 
-Comprendre physiquement le débarquement américain.
+Vous voyez immédiatement :
 
-### À faire
+* ce que les Alliés avaient face à eux ;
+* l’épaisseur des fortifications ;
+* les champs de tir vers la Manche.
 
-* marcher sur la plage ;
-* observer les hauteurs dominant la plage ;
-* voir le monument *Les Braves* ;
-* lire les sorties de plage.
-
-### Important
-
-Le relief explique presque tout :
-
-* plage exposée ;
-* peu de couvert ;
-* positions allemandes dominantes.
-
-Prenez le temps de marcher réellement sur le sable.
-
----
-
-# 12h00 – 13h35
-
-## Normandy American Cemetery
-
-### Temps conseillé
-
-1h30 environ.
-
-### À voir
-
-* le visitor center (court passage) ;
-* les alignements de tombes ;
-* le jardin des disparus ;
-* le belvédère sur Omaha Beach.
-
-### Pourquoi ce lieu est majeur
-
-Le contraste entre :
-
-* la beauté du site ;
-* et la violence des pertes humaines
-
-fonctionne très fortement.
-
-Le lieu contient plus de 9 000 tombes américaines.
-
----
-
-# 13h35 – 14h15
-
-## Pause déjeuner légère
-
-Évitez un restaurant long.
-
-Le plus efficace :
-
-* boulangerie ;
-* sandwich ;
-* manger ensuite face à la mer à Arromanches.
-
----
-
-# 14h15 – 14h50
-
-## Arromanches-les-Bains
-
-### Objectif
-
-Arrêt court uniquement.
-
-Pas besoin de musée demain.
-
-### Ce qu’il faut voir
-
-Depuis la promenade :
-
-* les restes du port artificiel Mulberry visibles au large.
-
-### Pourquoi c’est important
-
-Omaha explique le débarquement.
-Arromanches explique comment les Alliés ont ensuite alimenté l’invasion :
-
-* véhicules ;
-* carburant ;
-* munitions ;
-* hommes.
-
-Sans ces ports artificiels, l’opération aurait été beaucoup plus fragile.
-
-### Temps suffisant
-
-30 à 40 minutes.
-
----
-
-# 15h15 – 16h25
-
-## Pointe du Hoc
+Cela donne ensuite du sens à Arromanches et Omaha.
 
 ### À observer
 
-* les cratères ;
-* les bunkers ;
-* les falaises.
+* les casemates encore équipées ;
+* le poste de direction de tir en bord de falaise ;
+* la vue sur les secteurs alliés.
 
-C’est probablement le site où les traces du combat restent les plus visibles.
+### Ce qu’on comprend sur place
 
-### Important
+La batterie pouvait tirer :
 
-Certaines zones peuvent être fermées selon l’érosion et les travaux de sécurisation des falaises.
+* vers Omaha ;
+* mais aussi vers Gold Beach et Arromanches.
+
+Elle a été bombardée :
+
+* par la marine alliée ;
+* puis neutralisée après le débarquement.
+
+### Temps idéal
+
+30–40 min.
+
+Inutile d’y passer plus d’une heure.
 
 ---
 
-# 16h45 – 17h25
+# 11h10 – 11h45
+
+## Arromanches-les-Bains
+
+### Arrêt court
+
+Objectif :
+
+* voir le port Mulberry ;
+* comprendre la logistique alliée.
+
+### À faire
+
+* promenade front de mer ;
+* observer les structures au large.
+
+Pas de musée demain : vous gagneriez peu par rapport au temps perdu.
+
+---
+
+# 12h10 – 13h30
+
+## Normandy American Cemetery
+
+### Temps long
+
+Le cœur mémoriel de la journée.
+
+### Conseil
+
+Faire peu de photos ici.
+Le lieu fonctionne surtout par observation lente.
+
+---
+
+# 13h35 – 14h20
+
+## Omaha Beach
+
+### Déjeuner simple possible sur place
+
+### À regarder
+
+* relief ;
+* sorties de plage ;
+* exposition totale du terrain.
+
+Après Colleville, la plage devient beaucoup plus parlante.
+
+---
+
+# 14h45 – 16h00
+
+## Pointe du Hoc
+
+### Site le plus spectaculaire visuellement
+
+### À ne pas manquer
+
+* les cratères ;
+* les bunkers ;
+* le bord des falaises.
+
+Le terrain reste aujourd’hui encore profondément marqué.
+
+---
+
+# 16h15 – 17h00
 
 ## La Cambe German War Cemetery
 
-### Ambiance
+### Dernière étape très cohérente
 
-Très différente du cimetière américain :
+Le contraste avec Colleville est fort :
 
-* plus sombre ;
-* plus austère ;
-* plus dense.
+* esthétique ;
+* mémoire ;
+* densité des tombes.
 
-### À remarquer
-
-Beaucoup de soldats allemands enterrés ici étaient très jeunes.
-
-Le contraste avec Colleville fonctionne particulièrement bien en fin de journée.
+Très bon site pour terminer la journée.
 
 ---
 
-# 17h25 – 17h55
+# 17h20 – 17h50
 
-## Retour vers Rubercy
+## Retour Rubercy
 
----
-
-# Temps total réaliste
-
-* conduite : ~2h
-* visites : ~6h
-* pauses : ~1h
 
 ---
 
